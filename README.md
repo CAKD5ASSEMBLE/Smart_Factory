@@ -64,8 +64,6 @@ Github : https://github.com/joannajongwonchoi<br>
 
 ---
 
----
-
 <img align="left" width="180" height="180" src="https://user-images.githubusercontent.com/96767467/175253262-f4614359-abd2-4839-b8d3-0f7b8dd32f53.jpg" />
 
 - 조남현(CHO NAM HYEON)<br><br><br><br><br>
